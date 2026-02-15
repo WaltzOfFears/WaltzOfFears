@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/xnevma.gif
+![](https://files.catbox.moe/xnevma.gif)
 
 <!--
 **WaltzOfFears/WaltzOfFears** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
